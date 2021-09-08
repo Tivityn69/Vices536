@@ -1,3 +1,3 @@
-![7885d5381597f0d5e77c64e463973e1818d7e2bd_full](https://user-images.githubusercontent.com/68657086/132435406-0901f552-5ec6-48f4-9e24-4f062effa0a2.jpg)
+![a_06400c5908a1ea67e3bc5ef82833da09](https://user-images.githubusercontent.com/68657086/132435914-82004add-de3c-4316-b8ea-c853d814dc57.gif)
 Ent meu nome vitor ou Vitao
 sei um pouco sobre Python/JavaScript
