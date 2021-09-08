@@ -1,14 +1,9 @@
-                                                                Welcome to the end of the world.                                                                                        
+                                                                  Bem vindo a o perfil do Sn1per na Github
+                                                                             
+                                                                             🖤・15 Years
+                                                                   🤖・Criador da Coisa para Discord
 
-                                                                 Bem vindo a o perfil do Sn1per                                                                                     
-   
-                                                                       
-
-
-
-                                                                      🖤・15 Years.
-                                                             🤖・Criador da Coisa para Discord
-
+                                                              
 
    👻 Rede Sociais:                                                                                                     
    [instagram](https://www.instagram.com/sn1per_playboy/)
