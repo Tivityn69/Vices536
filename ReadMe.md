@@ -1,4 +1,4 @@
-                                                                  Bem vindo a o perfil do Sn1per na Github
+   Bem vindo a o perfil do Sn1per na Github
                                                                              
    🖤・15 Years                                                                     
    🤖・Criador da Coisa para Discord
