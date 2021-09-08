@@ -1,8 +1,13 @@
-                                                                Welcome to the end of the world.
-                                                                 Bem vindo a o perfil do Sn1per
+                                                                Welcome to the end of the world.                                                                                        
+
+                                                                 Bem vindo a o perfil do Sn1per                                                                                     
    
-                                                                       🖤・15 Years.
-                                                              🤖・Criador da Coisa para Discord
+                                                                       
+
+
+
+                                                                      🖤・15 Years.
+                                                             🤖・Criador da Coisa para Discord
 
 
    👻 Rede Sociais:                                                                                                     
